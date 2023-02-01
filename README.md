@@ -1,3 +1,3 @@
 Hi, my name is Ricardo Gameiro;
 I'm from Brazil;
-I'm a Mechanical Engeneering student trying to learn more about the webverse and improve my software skills (and if it work, maybe migrate D:);
+I'm a Mechanical Engeneering student trying to learn more about how the things work behind the sheets and how can I make the progress;
